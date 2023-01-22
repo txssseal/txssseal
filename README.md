@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @txssseal
-- 👀 I’m interested in Global FX and Payments
-- 🌱 I’m currently learning How to be a good CEO and product marketer
 - 📫 How to reach me @coltonseal twitter or linkedin
 
 <!---
